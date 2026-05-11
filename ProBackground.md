@@ -1,4 +1,4 @@
-# Jordan Soares Fernandes - Professional Background
+# Jordan Soares - Professional Background
 
 ---
 
